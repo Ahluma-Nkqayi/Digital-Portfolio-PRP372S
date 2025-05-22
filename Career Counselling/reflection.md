@@ -1,0 +1,4 @@
+**S:** I completed a self-paced Career Development module that included multiple quizzes covering important career guidance topics including goal-setting, career planning, and recognizing hard talents.
+**T:** For me to show my understanding through quizzes, I had to comprehend the goals and results of career guidance as well as how it relates to individual career development.
+**A:** I completed the whole module and received full points for all of the quizzes. I carefully went over each idea, paying particular attention to the significance of goal-setting, the distinction between hard and soft abilities, and the way that good counselling directs one's career path.
+**R:** I have acquired a deeper understanding of how planned advancement in my field influences future planning. My career path became clearer to me as a result, and I have become more comfortable setting SMART goals that are in line with my strengths and interests.
